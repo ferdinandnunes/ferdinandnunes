@@ -14,7 +14,7 @@ Bem-vindo(a) ao perfil do Ferdinand Nunes 😁
  
 <br>
  
-### Pra conteúdo sobre programação me segue a gente nas redes abaixo!
+ Redes Sociais Abaixo !
  
 <div> 
 
